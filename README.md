@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LionAwoken
-- 👀 I’m interested in PropTech career & business 
-- 🌱 I’m currently learning about the real business opportunities 
+- 👀 I’m interested in PropTech career & business opportunities
+- 🌱 I’m currently learning about areas to develope solutions and enahnce customer experience
 - 💞️ I’m looking to collaborate on sales, marketing and product development
 - 📫 How to reach me via email at edwin@marchan-dising.com
 
